@@ -1,4 +1,4 @@
-pode anotar aí, desonra pra tu, desonra pra tua vaca! -  mulan
+you can write it down, dishonor for you, dishonor for your cow! - mulan
 <!--
 **mewippich/mewippich** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
