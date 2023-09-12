@@ -1,4 +1,4 @@
-you can write it down, dishonor for you, dishonor for your cow! - mulan
+just keep swimming - dory
 <!--
 **mewippich/mewippich** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
