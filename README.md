@@ -1,4 +1,4 @@
-just keep swimming - dory
+Continue a nadar - dory
 <!--
 **mewippich/mewippich** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
